@@ -5,7 +5,7 @@
   - Developer of neural networks, 2024-, The Founder
 
 **RELEVANT WORK EXPERIENCE**
-  - 
+  - none yet
 
 **ABOUT ME...**
 - Exploring this world with a full little bag of experiences
